@@ -1,1 +1,4 @@
 # Just-trying
+
+Link zur Mindmap:
+https://miro.com/welcomeonboard/aHkyV3Q4SzF1WkpSM0V6Y0hoQWlZUGtHMzZrVmtVS29yWjcwb2ZkOUZ0N2dwWGp6WGoza1ZoZVZzSktTbThQZ3wzNDU4NzY0NTczMzY0NjYyNDA5fDI=?share_link_id=805038322944
